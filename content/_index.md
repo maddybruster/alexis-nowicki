@@ -7,7 +7,7 @@ She is currently a senior publicist at Viking Penguin. Previously, at Astra Hous
 
 Alexis is also the copy editor of *[Cake Zine](https://cakezine.com/)*, *[Hard Pack](https://www.hardpackmagazine.com/)*, and *[Elastic](https://www.elasticmag.com/)* magazines. She copy edited the latest issue of *[Third Place Zine](https://thirdplacezine.com/)*.
 
-She has written for *[Slate](https://slate.com/human-interest/2021/07/cat-person-kristen-roupenian-viral-story-about-me.html)*, *[Dirt](https://dirt.fyi/article/2022/10/99-glimpses)*, and *[Electric Eel](https://mailchi.mp/cf37f89c320d/strava-is-my-family-photo-album)*.
+She has written for *[Slate](https://slate.com/human-interest/2021/07/cat-person-kristen-roupenian-viral-story-about-me.html)*, *[Dirt](https://dirt.fyi/article/2022/10/99-glimpses)*, and *Electric Eel*.
 
 Her tweets have been among "[The 50 Funniest Tweets From Women In 2024](https://www.huffpost.com/entry/funniest-tweets-women-2024_l_67622ed4e4b0a89003b106ef)" and "[22 Of The Funniest Tweets About Cats And Dogs This Week](https://www.huffingtonpost.co.uk/entry/22-of-the-funniest-tweets-about-cats-and-dogs-this-week-may-20-26_uk_6471b6afe4b091b09c2d3770)," according to *HuffPost*. She was a 2025 *Publishers Weekly* [Star Watch](https://www.publishersweekly.com/pw/by-topic/industry-news/people/article/98988-pw-star-watch-2025-honorees.html) honoree.
 
