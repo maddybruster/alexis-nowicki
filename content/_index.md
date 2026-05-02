@@ -1,7 +1,7 @@
 ---
 title: Home
 ---
-Alexis Nowicki is a writer, publicist, and copy editor who lives in Brooklyn, NY.
+Alexis Nowicki is a publicist, copy editor, and writer who lives in Brooklyn, NY.
 
 She is currently a senior publicist at Viking Penguin. Previously, at Astra House, she ran publicity campaigns for books like Esther Yi’s *Y/N* and S.H. Fernando Jr.’s *The Chronicles of DOOM*. Prior to that, she worked at Farrar, Straus and Giroux. Read more about her publicity work—featuring placements from NPR to the Approval Matrix—[here](/publicity).
 
