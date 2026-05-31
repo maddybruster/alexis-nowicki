@@ -5,7 +5,7 @@ Alexis Nowicki is a publicist, copy editor, and writer who lives in Brooklyn, NY
 
 She is currently a senior publicist at Viking Penguin. Previously, at Astra House, she ran publicity campaigns for books like Esther Yi’s *Y/N* and S.H. Fernando Jr.’s *The Chronicles of DOOM*. Prior to that, she worked at Farrar, Straus and Giroux. Read more about her publicity work—featuring placements from NPR to the Approval Matrix—[here](/publicity).
 
-Alexis is also the copy editor of *[Cake Zine](https://cakezine.com/)*, *[Hard Pack](https://www.hardpackmagazine.com/)*, and *[Elastic](https://www.elasticmag.com/)* magazines. She copy edited the latest issue of *[Third Place Zine](https://thirdplacezine.com/)*.
+Alexis is also the copy editor of *[Cake Zine](https://cakezine.com/)*, *[Hard Pack](https://www.hardpackmagazine.com/)*, and *[Elastic](https://www.elasticmag.com/)* magazines. She copy edited the book *[Documentary Now! (Fourth Edition, Revised and Expanded)](https://store.mcsweeneys.net/products/documentary-now-fourth-edition-revised-and-expanded)* and the latest issue of *[Third Place Zine](https://thirdplacezine.com/)*.
 
 She has written for *[Slate](https://slate.com/human-interest/2021/07/cat-person-kristen-roupenian-viral-story-about-me.html)*, *[Dirt](https://dirt.fyi/article/2022/10/99-glimpses)*, and *Electric Eel*.
 
