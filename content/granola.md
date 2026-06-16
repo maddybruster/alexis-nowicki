@@ -3,24 +3,36 @@ title: Granola
 ---
 **<h1>Alexis's Signature Granola Recipe</h1>**
 
+***\~New and Improved\~***
+
 **Ingredients**<br>
 
-1 1/2 cups rolled oats<br>\
-1 cup chopped nuts and seeds of your choice<br>\
-1/2 cup coconut flakes<br>\
-1 tbs brown sugar<br>\
-1/2 tsp salt<br>\
-3 tbs coconut oil<br>\
-1/3 cup maple syrup or honey<br>\
-1 tsp vanilla<br>
+2 cups corn flakes
 
-**Instructions**<br>
+2 cups rolled oats
 
-1. Heat oven to 325°F
-2. In a large bowl, combine oats, nuts & seeds, coconut flakes, brown sugar, and salt.
-3. In a small saucepan, melt coconut oil and maple syrup or honey. Add vanilla.
+1/2 cup steel-cut oats
+
+1 cup sliced almonds (or other chopped nuts)
+
+1 tsp cinnamon
+
+1 1/2 tsp salt
+
+1/2 cup any combination of honey and maple syrup
+
+3 tbs coconut oil
+
+1/4 cup crystallized ginger, chopped
+
+1 tsp vanilla
+
+**Instructions**
+
+1. Heat oven to 325°F.
+2. In a large bowl, combine corn flakes, both kinds of oats, nuts, cinnamon, and salt.
+3. In a small saucepan, melt coconut oil and maple syrup and/or honey. Add crystallized ginger and simmer for 1 minute. Add vanilla.
 4. Mix to coat.
 5. Spread on a parchment-lined baking sheet in an even layer, packed.
-6. Bake for 20 minutes, then rotate 180°, and bake for 5 more minutes.
-7. Cool completely before touching.
-8. Add optional dried fruit and crystalized ginger. Mulberries are advised.
+6. Bake for 20 minutes.
+7. Cool completely before touching, then break into pieces and store in glass jars.
